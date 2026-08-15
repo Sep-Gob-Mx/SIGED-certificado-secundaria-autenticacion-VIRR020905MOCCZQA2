@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VIRR020905MOCCZQA2
+VIRR020905MOCCZQA2
